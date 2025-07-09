@@ -34,4 +34,8 @@ Spying on someone’s phone without their **knowledge or consent** is not just s
 You’re not James Bond, and this isn’t a Hollywood movie. 🎬🚫  
 So unless you enjoy orange jumpsuits and no internet, **get permission** first.  
 Be cool. Be legal. Use responsibly. 😎📱⚖️
+
+
+
+
 ![image](https://github.com/user-attachments/assets/3a81d973-f0a0-4768-b78d-66fa1795f03a)
